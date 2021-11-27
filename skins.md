@@ -9,3 +9,6 @@ Updated as of 27/11/2021
 
 # [dj anthony 1.0](https://mega.nz/file/jpEVgCbZ#08QgXDUvG1_HjiGH1bSj67NYurc1-0Xg5O-UKK7t-p8)
 ![](https://i.imgur.com/zCPZxy7.jpeg)
+
+# [Aristia(Edit)+rudj](https://mega.nz/file/3pVVgazS#OQGaOd0xq2gHj9yDi1pdj7PtO7WRA80XRo0Mqu1d11Q)
+![](https://i.imgur.com/a7KdPD7.png)
