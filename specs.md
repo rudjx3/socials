@@ -1,5 +1,6 @@
 # Specs 
-### My Settings and Setup - Updated as of 28/11/2021<br></br>
+### My Settings and Setup
+Updated as of 28/11/2021<br></br>
 
 ## Settings
 ### Area: 70mm x 39.375mm
