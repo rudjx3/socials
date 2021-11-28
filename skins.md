@@ -1,5 +1,5 @@
-# Skins
-Updated as of 27/11/2021
+# rudj's skin Collection
+Updated as of 28/11/2021 :D
 
 # [rudjxflayy boop](https://mega.nz/file/u5lmDJqK#ekvjv1t-VZaeRvudOJAU27YKA0mkyOYEnXUJ8CRUuhY)
 ![](https://i.imgur.com/9l67h4h.jpeg)
@@ -12,3 +12,6 @@ Updated as of 27/11/2021
 
 # [Aristia(Edit)+rudj](https://mega.nz/file/3pVVgazS#OQGaOd0xq2gHj9yDi1pdj7PtO7WRA80XRo0Mqu1d11Q)
 ![](https://i.imgur.com/a7KdPD7.png)
+
+# [- + tkova](https://mega.nz/file/vtdTQSTA#K8wG7fccTZRXx7Jta7tIyXwXv-M8XjT_X_EGQuiEU2c)
+![](https://i.imgur.com/Vd9BHje.png)
