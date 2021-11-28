@@ -5,7 +5,9 @@
 ### Area: 70mm x 39.375mm
 ![](https://i.imgur.com/eVMkVOE.png)
 ### Resolution: 1920x1080 Fullscreen
-### Grip: Drag
+### Grip:
+![](https://i.imgur.com/Ls8JD4I.png)
+### Drag?: Drag
 ### Driver: [OpenTabletDriver](https://github.com/OpenTabletDriver/OpenTabletDriver)
 ### Filters: None
 ### [Skins](skins.md)
