@@ -1,5 +1,6 @@
 # Settings
-Updated as of 29/11/2021 :D
+Updated as of 29/11/2021 :D<br>
+(Here are my <b><a href="specs.md">Peripherals</a></b>)
 ## osu!
 ### Area: 70mm x 39.375mm
 ![](https://i.imgur.com/eVMkVOE.png)
