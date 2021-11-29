@@ -1,18 +1,6 @@
 # Specs 
-### My Settings and Setup
-Updated as of 28/11/2021<br></br>
-
-## Settings
-### Area: 70mm x 39.375mm
-![](https://i.imgur.com/eVMkVOE.png)
-### Resolution: 1920x1080 Fullscreen
-### Grip:
-![](https://i.imgur.com/Ls8JD4I.png)
-### Drag?: Drag
-### Driver: [OpenTabletDriver](https://github.com/OpenTabletDriver/OpenTabletDriver)
-### Filters: None
-### [Skins](skins.md)
-### Switches: HyperX Red Switch
+### My PC and Peripherals
+Updated as of 29/11/2021<br></br>
 
 ## Peripherals
 FYI: As an Amazon Associate I earn from these qualifying amazon purchases, at no extra charge!
