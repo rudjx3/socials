@@ -1,16 +1,17 @@
 # Specs 
 ### My PC and Peripherals
-Updated as of 29/11/2021<br></br>
+Updated as of 29/11/2021 <br>
+FYI: As an Amazon Associate I earn from these qualifying amazon purchases, at no extra charge!<br></br>
 
 ## Peripherals
-FYI: As an Amazon Associate I earn from these qualifying amazon purchases, at no extra charge!
+All that shit
 ### Tablet: [CTL-472](https://amzn.to/3liPLav)
 ### Keyboard: [HyperX Alloy Origins](https://amzn.to/3lfaVX7)
 ### Mouse: [Razer Viper Mini](https://amzn.to/3o0An4h)
 ### Monitor: [AOC G2460PF](https://amzn.to/3pb1zwu)
 ### Tablet Cover: [Foxbox](https://foxbox.io)
 ### ~~Keypad: [Lotus 3k](https://lotuspro.io)~~
-### Mouse Bungee: [Razer Bungee](https://amzn.to/3rgvztz)
+### Mouse Bungee: [Razer Bungee](https://amzn.to/3rgvztz) <br></br>
 ## PC
 My PC is kinda mid
 ### CPU: [i5 7400](https://amzn.to/3E2Er9W)
