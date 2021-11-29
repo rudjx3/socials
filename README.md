@@ -28,6 +28,7 @@
   <br></br>
   <b><a href="skins.md">skins</a> |
   <a href="https://streamelements.com/rudjx3/tip">donate ♥</a> | 
-  <a href="specs.md">specs</a></b>
+  <a href="specs.md">specs</a> |
+  <a href="settings.md">settings</a></b>
 </p>
 
