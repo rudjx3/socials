@@ -11,9 +11,10 @@ Updated as of 29/11/2021 :D<br>
 ### Driver: [OpenTabletDriver](https://github.com/OpenTabletDriver/OpenTabletDriver)
 ### Aim Filters: None
 ### [Skins](skins.md)
-### Switches: HyperX Red Switch
+### Switches: HyperX Red Switch<br></br>
 
 ## FPS/Koovaks
 ### Sens: 40.82cm/360
 ### Valorant: 0.4 800DPI
 ### Resolution: 1440×1080 4:3
+[to be continued]
