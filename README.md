@@ -5,7 +5,7 @@
   <img src="https://i.imgur.com/lrUeNuR.png"  
        width="100" 
        height="100"></a>
-  <a href="https://twitch.tv/rudjx3">
+  <a href="https://twitch.tv/rudj_">
   <img src="https://i.imgur.com/HM030lk.png" 
        width="100" 
        height="100"></a>
@@ -17,7 +17,7 @@
   <img src="https://i.imgur.com/280iQbV.png"  
        width="100" 
        height="100"></a>
-  <a href="https://twitter.com/rudjx3">
+  <a href="https://twitter.com/rudj_">
   <img src="https://i.imgur.com/PUQ5uWf.png" 
        width="100" 
        height="100"></a>
