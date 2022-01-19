@@ -26,7 +26,8 @@
        width="100" 
        height="100"></a>
   <br></br>
-  <b><a href="skins.md">skins</a> |
+  <b><a href="anilist.co/user/rudj">anilist</a> |
+  <a href="skins.md">skins</a> |
   <a href="settings.md">settings</a> | 
   <a href="specs.md">specs</a> |
   <a href="scores.md">my best scores</a> |
