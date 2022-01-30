@@ -1,4 +1,4 @@
-# rudj's skin Collection
+# rudj & erick's skin Collection
 Updated as of 30/01/2022 :D
 
 # [rafis2018](https://mega.nz/file/3hUjHY5S#7hGiJp84RJl67esxO5Bx9YVmlsqLL0gD_jDjG5pLO5g)
