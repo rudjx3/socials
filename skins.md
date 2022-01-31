@@ -1,27 +1,26 @@
 # rudj & erick's skin Collection
-Updated as of 30/01/2022 :D
-# [ALL SKINS MEGA DOWNLOAD (3GB+)](https://mega.nz/folder/G80mQKhT#FKvaoR0Iz_U1lHLUzBMvhg)
+The best skin folder evr... archive created by rudj & erick
+# [>> ALL SKINS MEGA DOWNLOAD 5GB <<](https://mega.nz/folder/G80mQKhT#FKvaoR0Iz_U1lHLUzBMvhg)
 
-# [rafis2018](https://mega.nz/file/3hUjHY5S#7hGiJp84RJl67esxO5Bx9YVmlsqLL0gD_jDjG5pLO5g)
-![](https://i.imgur.com/ZpoTrDn.jpeg)
+# [+ candy powder](https://mega.nz/file/y1k3UAgZ#k01Mqu6qsIJfUY6hZovNQ3_wkN_IRmCAOFvh0X2hJB8)
+![](https://osu.ppy.sh/ss/17509881/7000)
 
-# [dj anthony 1.0](https://mega.nz/file/jpEVgCbZ#08QgXDUvG1_HjiGH1bSj67NYurc1-0Xg5O-UKK7t-p8)
-![](https://i.imgur.com/zCPZxy7.jpeg)
+# [- + toke charlotte](https://mega.nz/file/np9CwagK#7-bURwthc_YbH3jYigwO8lXBFoqZtvljitT6kssqLzw)
+![](https://osu.ppy.sh/ss/17509899/375c)
 
-# [dddx15dt](https://mega.nz/file/yx9WjBoa#-ZXMkqcYxXGppZJYfsvun4JYnl6umzc3eiey3t9oml0)
-![](https://i.imgur.com/hthQSkS.png)
+# [- mind](https://mega.nz/file/P1kSBCaQ#V5xqGHsAPtHRphXcAkaZ5RJWsuDJ-OJC-pEmBwoELPQ)
+![](https://osu.ppy.sh/ss/17509948/0149)
 
-# [Aristia(Edit)+rudj](https://mega.nz/file/3pVVgazS#OQGaOd0xq2gHj9yDi1pdj7PtO7WRA80XRo0Mqu1d11Q)
-![](https://i.imgur.com/a7KdPD7.png)
+# [+ lefillia](https://mega.nz/file/j49EEAyY#ikgMHou1QIMDKBT7hXSAtTWG4EZeuNE8l0-QuY5Pfkc)
+![](https://osu.ppy.sh/ss/17509960/05d2)
 
-# [tkova](https://mega.nz/file/vtdTQSTA#K8wG7fccTZRXx7Jta7tIyXwXv-M8XjT_X_EGQuiEU2c)
-![](https://i.imgur.com/Vd9BHje.png)
+# [+ tuyu](https://mega.nz/file/3l0iWaCL#SEfZJb4c2TcSfDttb2Ugq_jSq3vvODmt2Vna6HCCJrc)
+![](https://osu.ppy.sh/ss/17509973/3abb)
 
-# [boop+Alfie](https://mega.nz/file/i89yyAya#Pob40n3dbfP3ViPtLwVGANEt8jGFkuFaDIImgoXi09o)
-![](https://i.imgur.com/t4qx8uM.jpeg)
+# [- + rafis2018](https://mega.nz/file/O48g3KZJ#iENR5BMZQYfr8B5Qc61b5rhrTUTrrVCLEiI4Q3zM3Vg)
+![](https://osu.ppy.sh/ss/17509978/0fd8)
 
-# [rudjxflayy boop](https://mega.nz/file/u5lmDJqK#ekvjv1t-VZaeRvudOJAU27YKA0mkyOYEnXUJ8CRUuhY)
-![](https://i.imgur.com/9l67h4h.jpeg)
-
-# [freddie](https://mega.nz/file/apViSb7C#1YWvusbQFY5yxVo4AUpX6MliX5hAL9HkjsgnRto650c)
-![](https://osu.ppy.sh/ss/17509445/bc4e)
+# [- morgan but kyle](https://mega.nz/file/rlkChISa#COaYC5UwNgIMLPOd4bm8j6UV-wQ_Hii1SNsquLlbxQc)
+![](https://osu.ppy.sh/ss/17510016/b24f)
+### Last updated 31/01/2022
+### All skins in [mega download...](https://mega.nz/folder/G80mQKhT#FKvaoR0Iz_U1lHLUzBMvhg)
