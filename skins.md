@@ -1,5 +1,6 @@
 # rudj & erick's skin Collection
 Updated as of 30/01/2022 :D
+# [ALL SKINS (3GB+)](https://mega.nz/folder/G80mQKhT#FKvaoR0Iz_U1lHLUzBMvhg)
 
 # [rafis2018](https://mega.nz/file/3hUjHY5S#7hGiJp84RJl67esxO5Bx9YVmlsqLL0gD_jDjG5pLO5g)
 ![](https://i.imgur.com/ZpoTrDn.jpeg)
@@ -13,7 +14,7 @@ Updated as of 30/01/2022 :D
 # [Aristia(Edit)+rudj](https://mega.nz/file/3pVVgazS#OQGaOd0xq2gHj9yDi1pdj7PtO7WRA80XRo0Mqu1d11Q)
 ![](https://i.imgur.com/a7KdPD7.png)
 
-# [- + tkova](https://mega.nz/file/vtdTQSTA#K8wG7fccTZRXx7Jta7tIyXwXv-M8XjT_X_EGQuiEU2c)
+# [tkova](https://mega.nz/file/vtdTQSTA#K8wG7fccTZRXx7Jta7tIyXwXv-M8XjT_X_EGQuiEU2c)
 ![](https://i.imgur.com/Vd9BHje.png)
 
 # [boop+Alfie](https://mega.nz/file/i89yyAya#Pob40n3dbfP3ViPtLwVGANEt8jGFkuFaDIImgoXi09o)
