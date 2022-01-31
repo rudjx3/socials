@@ -1,6 +1,6 @@
 # rudj & erick's skin Collection
 Updated as of 30/01/2022 :D
-# [ALL SKINS (3GB+)](https://mega.nz/folder/G80mQKhT#FKvaoR0Iz_U1lHLUzBMvhg)
+# [ALL SKINS MEGA DOWNLOAD(3GB+)](https://mega.nz/folder/G80mQKhT#FKvaoR0Iz_U1lHLUzBMvhg)
 
 # [rafis2018](https://mega.nz/file/3hUjHY5S#7hGiJp84RJl67esxO5Bx9YVmlsqLL0gD_jDjG5pLO5g)
 ![](https://i.imgur.com/ZpoTrDn.jpeg)
