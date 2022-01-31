@@ -22,3 +22,6 @@ Updated as of 30/01/2022 :D
 
 # [rudjxflayy boop](https://mega.nz/file/u5lmDJqK#ekvjv1t-VZaeRvudOJAU27YKA0mkyOYEnXUJ8CRUuhY)
 ![](https://i.imgur.com/9l67h4h.jpeg)
+
+# [freddie](https://mega.nz/file/apViSb7C#1YWvusbQFY5yxVo4AUpX6MliX5hAL9HkjsgnRto650c)
+![](https://osu.ppy.sh/ss/17509445/bc4e)
