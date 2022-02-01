@@ -14,6 +14,9 @@ The best skin folder evr... archive created by rudj & erick
 # [+ lefillia](https://mega.nz/file/j49EEAyY#ikgMHou1QIMDKBT7hXSAtTWG4EZeuNE8l0-QuY5Pfkc)
 ![](https://osu.ppy.sh/ss/17509960/05d2)
 
+# [- + aristia ✿](https://mega.nz/file/qkkiiIxa#2u_EYIGERgh68uWH2Ay6HCeparfD9kc14p5nKlbysnE)
+![](https://osu.ppy.sh/ss/17512689/7493)
+
 # [+ tuyu](https://mega.nz/file/3l0iWaCL#SEfZJb4c2TcSfDttb2Ugq_jSq3vvODmt2Vna6HCCJrc)
 ![](https://osu.ppy.sh/ss/17509973/3abb)
 
@@ -23,4 +26,4 @@ The best skin folder evr... archive created by rudj & erick
 # [- morgan but kyle](https://mega.nz/file/rlkChISa#COaYC5UwNgIMLPOd4bm8j6UV-wQ_Hii1SNsquLlbxQc)
 ![](https://osu.ppy.sh/ss/17510016/b24f)
 ### Last updated 31/01/2022
-### All skins in [mega download...](https://mega.nz/folder/G80mQKhT#FKvaoR0Iz_U1lHLUzBMvhg)
+### All skins in [mega download...](https://mega.nz/folder/m4FyQLCb#HlzDSwUHKE1KN5gq1ejwTQ)
