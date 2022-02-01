@@ -14,6 +14,9 @@ The best skin folder evr... archive created by rudj & erick
 # [+ lefillia](https://mega.nz/file/j49EEAyY#ikgMHou1QIMDKBT7hXSAtTWG4EZeuNE8l0-QuY5Pfkc)
 ![](https://osu.ppy.sh/ss/17509960/05d2)
 
+# [- + dddx15dt](https://mega.nz/file/HtkEnYoI#bEqAucUXy8zRNmLBO8Uphx4BNI2BbLhaAWMVjKbwgYA)
+![](https://osu.ppy.sh/ss/17513594/590b)
+
 # [- + aristia ✿](https://mega.nz/file/qkkiiIxa#2u_EYIGERgh68uWH2Ay6HCeparfD9kc14p5nKlbysnE)
 ![](https://osu.ppy.sh/ss/17512689/7493)
 
