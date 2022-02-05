@@ -1,7 +1,8 @@
 # rudj & erick's skin Collection
 The best skin folder evr... archive created by rudj & erick
-# [>> ALL SKINS MEGA DOWNLOAD 5GB <<](https://mega.nz/folder/m4FyQLCb#HlzDSwUHKE1KN5gq1ejwTQ)
+# [>> ALL MY SKINS, SYNCED ON THE CLOUD <<](https://mega.nz/folder/m4FyQLCb#HlzDSwUHKE1KN5gq1ejwTQ)
 
+# Featured Skins
 # [+ candy powder](https://mega.nz/file/y1k3UAgZ#k01Mqu6qsIJfUY6hZovNQ3_wkN_IRmCAOFvh0X2hJB8)
 ![](https://osu.ppy.sh/ss/17509881/7000)
 
@@ -28,5 +29,5 @@ The best skin folder evr... archive created by rudj & erick
 
 # [- morgan but kyle](https://mega.nz/file/rlkChISa#COaYC5UwNgIMLPOd4bm8j6UV-wQ_Hii1SNsquLlbxQc)
 ![](https://osu.ppy.sh/ss/17510016/b24f)
-### Last updated 31/01/2022
+### Last updated 05/02/2022
 ### All skins in [mega download...](https://mega.nz/folder/m4FyQLCb#HlzDSwUHKE1KN5gq1ejwTQ)
