@@ -1,8 +1,7 @@
 # rudj & erick's skin Collection
-The best skin folder evr... archive created by rudj & erick
-# [>> ALL MY SKINS, SYNCED ON THE CLOUD <<](https://mega.nz/folder/m4FyQLCb#HlzDSwUHKE1KN5gq1ejwTQ)
+The best skin folder evr... archive created by rudj & erick 
+# [>> ALL 170+ SKINS - ALWAYS UPDATED <<](https://mega.nz/folder/m4FyQLCb#HlzDSwUHKE1KN5gq1ejwTQ)
 
-# Featured Skins
 # [+ candy powder](https://mega.nz/file/y1k3UAgZ#k01Mqu6qsIJfUY6hZovNQ3_wkN_IRmCAOFvh0X2hJB8)
 ![](https://osu.ppy.sh/ss/17509881/7000)
 
