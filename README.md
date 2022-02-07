@@ -27,7 +27,7 @@
        height="100"></a>
   <br></br>
   <b><a href="https://anilist.co/user/rudj">anilist</a> |
-  <a href="skins.md">skins</a> |
+  <a href="https://github.com/rudjx3/skins/blob/main/README.md">skins</a> |
   <a href="settings.md">settings</a> | 
   <a href="specs.md">specs</a> |
   <a href="scores.md">my best scores</a> |
