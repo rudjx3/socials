@@ -2,8 +2,8 @@
 Updated as of 29/11/2021 :D<br>
 (Here are my <b><a href="specs.md">Peripherals</a></b>)
 ## osu!
-### Area: 70mm x 39.375mm
-![](https://i.imgur.com/eVMkVOE.png)
+### Area: 60mm x 33.75mm
+![](https://i.imgur.com/dI2v7We.png)
 ### Resolution: 1920x1080 Fullscreen
 ### Grip:
 ![](https://i.imgur.com/Ls8JD4I.png)
