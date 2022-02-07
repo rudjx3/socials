@@ -9,8 +9,8 @@ Updated as of 29/11/2021 :D<br>
 ![](https://i.imgur.com/Ls8JD4I.png)
 ### Drag?: Drag
 ### Driver: [OpenTabletDriver](https://github.com/OpenTabletDriver/OpenTabletDriver)
-### Aim Filters: None
-### [Skins](skins.md)
+### Aim Filters: Hawku Noise Reduction 3ms 1.1mm
+### [Skins](https://github.com/rudjx3/skins/blob/main/README.md)
 ### Switches: HyperX Red Switch<br></br>
 
 ## FPS/Koovaks
