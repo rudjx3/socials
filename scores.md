@@ -1,3 +1,0 @@
-# Scores
-Deciding what scores to put here...
-gna do this soon :D
