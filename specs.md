@@ -9,7 +9,7 @@ All that shit
 ### Mouse: [Razer Viper Mini]
 ### Monitor: [AOC G2460PF]
 ### Tablet Cover: [Foxbox]
-### ~~Keypad: [Lotus 3k](https://lotuspro.io)~~
+### ~~Keypad: [Lotus 3k]~~
 ### Mouse Bungee: [Razer Bungee]
 ## PC
 My PC is kinda mid
