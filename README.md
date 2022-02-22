@@ -31,6 +31,6 @@
   <a href="settings.md">settings</a> | 
   <a href="specs.md">specs</a> |
   <a href="scores.md">my best scores</a> |
-  <a href="https://streamelements.com/rudjx3/tip">donate ♥</a></b>
+  <a href="https://streamelements.com/rudj_/tip">donate ♥</a></b>
 </p>
 
