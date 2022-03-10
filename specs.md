@@ -11,7 +11,7 @@ All that shit
 ### Tablet Cover: Foxbox
 ### Mouse Bungee: Razer Bungee
 ## PC
-My PC is kinda mid
+My PC is kinda
 ### CPU: i5 7400
 ### GPU: GTX 1060
 ### RAM: 2x8GB DDR4 2666Mhz
