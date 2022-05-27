@@ -5,7 +5,7 @@
   <img src="https://i.imgur.com/lrUeNuR.png"  
        width="100" 
        height="100"></a>
-  <a href="https://twitch.tv/rudj_">
+  <a href="https://twitch.tv/rudj_osu">
   <img src="https://i.imgur.com/HM030lk.png" 
        width="100" 
        height="100"></a>
