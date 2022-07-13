@@ -30,7 +30,6 @@
   <a href="https://github.com/rudjx3/skins/blob/main/README.md">skins</a> |
   <a href="settings.md">settings</a> | 
   <a href="specs.md">specs</a> |
-  <a href="https://www.youtube.com/channel/UCnkzp15TmP4NqnvGky2Goyw">snipers people</a> |
-  <a href="https://streamelements.com/rudj_osu/tip">donate ♥</a></b>
+  <a href="https://www.youtube.com/channel/UCnkzp15TmP4NqnvGky2Goyw">snipers people</a></b>
 </p>
 
